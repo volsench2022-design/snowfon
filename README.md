@@ -1,3 +1,4 @@
+<img width="1285" height="858" alt="Screenshot 2026-01-22 163500" src="https://github.com/user-attachments/assets/088a0925-5236-4a09-b180-42a826e3a62e" />
 
 ## ❄️ What this program does
 
